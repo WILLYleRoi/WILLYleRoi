@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @WILLYleRoi, i live in Italy
+- 👀 I’m interested in python
+- 🌱 I’m currently learning python
+- 📫 How to reach me? You don't reach me. ;D      ig. theking.exe08
